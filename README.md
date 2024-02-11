@@ -1,0 +1,2 @@
+# learn_leason31
+FOR MY TEACHER GIGACHAT
